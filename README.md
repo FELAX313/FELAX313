@@ -2,6 +2,7 @@
 - 👀 I’m interested in Basketball
 - 🌱 I’m currently learning basketball
 - 💞️ I’m looking to collaborate on coding
+- I like Bill's Lemons!!!!!! (https://sites.google.com/view/billlemons/home-page)
 - 📫 How to reach me: guess harhar
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
